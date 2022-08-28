@@ -1,0 +1,1 @@
+https://quotemachinebysomesh.netlify.app/
